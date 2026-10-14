@@ -1,0 +1,2 @@
+# premium-burr-file-001-rotary-burr-filing-carbide-s
+Tired of rummaging through a jumbled drawer of burrs and forgetting which carbide shape you used for that perfect finish? Your craft deserves precision, not chaos.  This Notion template transforms your burr filing workflow into a systematic lab. Catalog every rotary burr, track project progress, and store shape specs in one place — no more lost bit
